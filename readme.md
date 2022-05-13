@@ -56,7 +56,7 @@
 
 ## 5、视频演示
 
-[点击播放视频，视频位于文章最后](https://mp.weixin.qq.com/s?__biz=MzkwMjM1MjM0Ng==&mid=2247484211&idx=1&sn=1b9ea787e8d7922835012afb99c97cd7&chksm=c0a79f86f7d0169057a4f9850f30492fabe04180772c9e76c8ff108424b40d5e570dd7b6e201#rd)
+[点击播放视频，视频位于文章最后](https://mp.weixin.qq.com/s/x_Wpcs4YcVzKIzd1vsePeQ)
 
 ## 6、获取方式
 
